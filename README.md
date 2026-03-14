@@ -1,0 +1,1 @@
+# Dispositivo-vestivel-acessibilidade
